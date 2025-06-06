@@ -1,2 +1,2 @@
-# Curso-Valuaci-n-de-Servicios-Ecol-gicos
+# Curso-Valuacion-de-Servicios-Ecologicos
 Valuación de Servicios Ecológicos
